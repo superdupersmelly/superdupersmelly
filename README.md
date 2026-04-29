@@ -1,3 +1,3 @@
-# links
-### https://superdupersmelly.atabook.org/
-### https://superdupersmelly.straw.page/
+# ☆ links
+### - https://superdupersmelly.atabook.org/
+### - https://superdupersmelly.straw.page/
