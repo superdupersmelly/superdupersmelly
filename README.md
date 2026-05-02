@@ -1,3 +1,3 @@
 # ☆ links
-### - https://weepinginperplexityarms.atabook.org/
+### - https://weepinginperplexitysarms.atabook.org/
 ### - https://weepinginperplexitysarms.straw.page/
